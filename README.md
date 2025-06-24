@@ -11,7 +11,7 @@
 
 点击访问：<a href="https://74mao.com/">Telegram频道传送门</a>
 
-点击访问：<a href="https://hj-216.pages.dev/">精彩影视</a>
+点击访问：<a href="https://hls-04.pages.dev/">黑料社PC</a>
 
 点击访问：<a href="https://hls-22.pages.dev/">黑料社网免费观看</a>
 
